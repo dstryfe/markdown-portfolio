@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I **can't stand** writing about myself. Braggarts are *bad*, and should feel bad.
